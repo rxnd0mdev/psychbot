@@ -1,0 +1,1 @@
+https://media.discordapp.net/attachments/1334498756715872266/1335282388191805622/image55-2.gif?ex=69ec3fe1&is=69eaee61&hm=460a649147a26e794f8b2e84f69a1a8ddd5cc599843b98b030fc5b21cbefeea0&=&width=490&height=566
